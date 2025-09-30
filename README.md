@@ -1,6 +1,6 @@
  <img src="https://i.pinimg.com/736x/39/8f/1e/398f1e195b76bfc91ab2cd7369ad188d.jpg" width="500"> 
 
-> "Apollo..."  [ Dead silent, Halo Machinima ]
+> "Oh! You're so insecure!" [ RVB, HALO ]
 ---------
 
 > To int , send me a message over atabook or strawpage
