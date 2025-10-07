@@ -1,4 +1,4 @@
- <img src="https://i.pinimg.com/1200x/2e/1f/07/2e1f072d7b235375b0529bac2e10a399.jpg" width="500"> 
+ <img src="https://i.pinimg.com/1200x/62/5a/ea/625aeafa71276cdd244bce4ab209ab8e.jpg" width="500"> 
 
 > "Why do cars hate me?" [ RVB, HALO ]
 ---------
