@@ -1,6 +1,6 @@
- <img src="https://i.pinimg.com/1200x/62/5a/ea/625aeafa71276cdd244bce4ab209ab8e.jpg" width="500"> 
+ <img src="https://i.pinimg.com/736x/bd/7f/d3/bd7fd3dc521bb022f52bcba9ea6fda6a.jpg" width="500"> 
 
-> "Why do cars hate me?" [ RVB, HALO ]
+> ""How did changing my identity help you?"" [ COD, Black OPS Cold War ]
 ---------
 
 > To int , send me a message over atabook or strawpage
