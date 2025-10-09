@@ -9,6 +9,10 @@
 
 > Dni/Other = Strawpage
 
-> Slow responses
+> -----------------------
+> Short info drop
 
-> (back in school till june 17th ( subject to change )
+> Zane / Mach ( other names / kin names allowed )
+> He/They/It
+> I am 16 / a minor
+> No I do not have D.I.D, I am not a system and I am not diagnosed with anything relating. Kinning in my terms is a form of comfort for my "mind to settle into my body".
