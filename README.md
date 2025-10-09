@@ -19,3 +19,5 @@
 > I am 16 / a minor ( I do not mind chatting w/ people who are younger/older than me just dont be genuinely funky )
 
 > No I do not have D.I.D, I am not a system and I am not diagnosed with anything relating. Kinning in my terms is a form of comfort for my "mind to settle into my body".
+
+> Discord: machinimatic  ( Do not friend me unless I know you well / we talk abt it )
