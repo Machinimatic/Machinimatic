@@ -1,4 +1,4 @@
- <img src="https://i.pinimg.com/736x/bd/7f/d3/bd7fd3dc521bb022f52bcba9ea6fda6a.jpg" width="500"> 
+ <img src="https://i.pinimg.com/736x/0e/eb/ff/0eebff01dab22ece8e78d4e9ffb7e44d.jpg" width="500"> 
 
 > ""How did changing my identity help you?"" [ COD, Black OPS Cold War ]
 ---------
