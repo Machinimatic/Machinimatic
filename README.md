@@ -5,9 +5,9 @@
 
 > To int , send me a message over atabook or strawpage
 
-> BYI = on Carrd
+> Pronouns Page: Kins/Info
 
-> Dni/Other = Strawpage
+> Strawpage: Messages/Info/DNI
 
 > -----------------------
 > Short info drop
