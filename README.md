@@ -1,6 +1,6 @@
  <img src="https://i.pinimg.com/736x/0e/eb/ff/0eebff01dab22ece8e78d4e9ffb7e44d.jpg" width="500"> 
 
-> ""How did changing my identity help you?"" [ COD, Black OPS Cold War ]
+> "Where's my goddamn money?" [ Marvel / MCU ]
 ---------
 
 > To int , send me a message over atabook or strawpage
