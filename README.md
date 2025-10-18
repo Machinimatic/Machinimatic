@@ -1,6 +1,6 @@
  <img src="https://i.pinimg.com/736x/aa/99/1e/aa991e5054b7287cb4478cc99b8dcd7e.jpg" width="500"> 
 
-> "Where's my goddamn money?" [ Marvel / MCU ]
+> "I wanna be yours" [ Cod: Ghosts ]
 ---------
 
 > To int , send me a message over atabook or strawpage
