@@ -12,7 +12,7 @@
 > -----------------------
 > Short info drop
 
-> Zane / Mach ( other names / kin names allowed )
+> Zane / Logan / Mach ( other names / kin names allowed )
 
 > He/They/It
 
