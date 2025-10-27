@@ -2,7 +2,7 @@
 
 - Info Drop : >>
 
-- . Logan / Walker / Mach
+- . Logan / Zane / Mach
 - . He/They/It
 - . Severe Anxiety / Depression
 _ . 16 years old, Junior in highschool
