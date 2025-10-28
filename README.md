@@ -9,6 +9,12 @@
 
 --------------------------------
 
-- C+H on ponytown is acceptable!
 - Message me on Atabook / Strawpage
+
+--------------------------------
+
+- . I get overstimulated / Anxious or nervous very easily
+- . I can get a impulsive under strong emotions
+- . I don't always do good with crowds
+- . I prefer to be quiet or not talk unless It's a one-on-one convo.
   
