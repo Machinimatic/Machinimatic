@@ -7,6 +7,8 @@
 - . Severe Anxiety / Depression
 - . 16 years old, Junior in highschool
 
+- current status: Bell = brainwashed, follower, loyal, unfunctioning body
+
 --------------------------------
 
 - Message me on Atabook / Strawpage
