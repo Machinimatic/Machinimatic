@@ -1,4 +1,4 @@
- <img src="https://i.pinimg.com/originals/2b/2d/ab/2b2dab7197e3314d801a59eefde094b8.gif" width="300"> 
+ <img src="https://i.pinimg.com/736x/eb/44/cc/eb44cc7f489a78844c3ff618dcfb0793.jpg" width="300"> 
 
 - Info Drop : >>
 
