@@ -6,8 +6,7 @@
 - . He/They/It
 - . Severe Anxiety / Depression
 - . 16 years old, Junior in highschool
-
-- current status: Bell / Sonar = brainwashed, unfunctioning body, compact
+- . Trans & Gay/Bi/Questioning?
 --------------------------------
 
 - Message me on Atabook / Strawpage
