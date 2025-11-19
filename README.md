@@ -6,7 +6,7 @@
 - . He/They/It
 - . Severe Anxiety / Depression
 - . 16 years old, Junior in highschool
-- . Trans & Gay/Bi/Questioning?
+- . Trans & Gay/Bi/Questioning? ( Currently mostly attracted to men though?? IDK IDK AHHHH )
 --------------------------------
 
 - Message me on Atabook / Strawpage
