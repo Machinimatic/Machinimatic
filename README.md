@@ -9,7 +9,8 @@
 --------------
 
 -. Info;
-Coping-Link: Coping-Links comfort my insecurities and I often identify with them physically/psychologically in a way to comfort myself mentally, or how I view myself physically, it also extends further.
+
+- Coping-Link: Coping-Links comfort my insecurities and I often identify with them physically/psychologically in a way to comfort myself mentally, or how I view myself physically, it also extends further.
 
 - I have severe anxiety & depression and can get overwhelmed easily
 - I lose motivation to do things quite frequently and often multitask when bored.
