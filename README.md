@@ -1,4 +1,4 @@
- <img src="https://i.pinimg.com/1200x/4a/05/01/4a0501e191dd24fec367c77ef89b70b0.jpg" width="300"> 
+ <img src="https://i.pinimg.com/736x/ac/fc/7b/acfc7bc47b73f732add0116210c1cc5e.jpg" width="300"> 
 
 -. Main;
 - Zane
