@@ -1,9 +1,14 @@
- <img src="https://i.pinimg.com/736x/a8/70/b8/a870b8a372e9966a044d8fba103fde71.jpg" width="300"> 
+ <img src="https://i.pinimg.com/736x/cc/e6/e4/cce6e491fa7c8ad53f96bd201ec1cfab.jpg" width="300"> 
 
 -. Main;
 - Zane
 - Logan / Logan Walker
 - Mach / Machinimatic
+.
+- CPL Name:
+- Parrot / X2
+- Michael J. Caboose
+- Richard D. Simmons
 .
 - He/They/It
 --------------
