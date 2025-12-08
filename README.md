@@ -5,7 +5,7 @@
 - Logan / Logan Walker
 - Mach / Machinimatic
 .
-- CPL Name:
+-. CPL Names;
 - Parrot / X2
 - Michael J. Caboose
 - Richard D. Simmons
