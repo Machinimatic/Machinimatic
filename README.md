@@ -5,11 +5,11 @@
 - Zane
 - Logan / Logan Walker
 - Mach / Machinimatic
+- Parrot / X2
 
 -. CPL Names;
-- Parrot / X2
 - Michael J. Caboose
-- Richard D. Simmons
+- ReGect (Reject)
 .
 - He/They/It
 --------------
