@@ -1,5 +1,5 @@
- <img src="https://i.pinimg.com/736x/cc/e6/e4/cce6e491fa7c8ad53f96bd201ec1cfab.jpg" width="300"> 
-( EDITING SOCIALS )
+ <img src="https://i.pinimg.com/736x/3a/48/70/3a4870c1e3362e3c254414d05a463364.jpg" width="300"> 
+
 
 -. Main;
 - Zane
