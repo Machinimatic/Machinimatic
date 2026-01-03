@@ -1,4 +1,4 @@
- <img src="https://oyster.ignimgs.com/mediawiki/apis.ign.com/call-of-duty-black-ops-3/3/38/Black-Ops-3_Specialist-Spectre.jpg" width="300"> 
+ <img src="https://i.pinimg.com/1200x/1f/54/b1/1f54b1337e951d4d78d9b0647541f5b5.jpg" width="300"> 
 
 -. Main;
 - Zane
