@@ -4,9 +4,9 @@
 - Zane
 - Logan / Logan Walker
 - Mach / Machinimatic
-- Parrot / X2
 
 -. CPL Names;
+- Florida / Butch Flowers
 - Michael J. Caboose
 - ReGect (Reject)
 .
