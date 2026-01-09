@@ -7,7 +7,7 @@
 
 
 -. CPL Names;
-- Bell
+- Débutant / Rookie / ODST
 - Michael J. Caboose
 - ReGect (Reject)
 .
