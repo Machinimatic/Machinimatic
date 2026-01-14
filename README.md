@@ -20,10 +20,8 @@
 - 
 - Coping-Link: Coping-Links comfort my insecurities, and I often identify with them physically/psychologically in a way to comfort myself mentally, or how I view myself physically, it also extends further.
 
-- I have severe anxiety & depression and can get overwhelmed easily
-- I CANNOT sit still, I'm most likely doing multiple things at once.
-- I lose motivation to do things quite frequently and often multitask when bored.
-- I am active on socials & PonyTown, but I can disappear for a while sometimes.
+- I have severe anxiety & depression and can get overwhelmed easily.
+- I am not self-diagnosing myself, but I have done my research and my mental state/symptoms conclude I may have Psychosis(Shizophrenia) I am working on being diagnosed when I can as at 16 I do not have many options of healthcare.
 
 --------------
 
