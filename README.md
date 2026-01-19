@@ -7,9 +7,9 @@
 
 
 -. CPL Names;
-- Débutant / Rookie / ODST
+- Roland / B210 
 - Michael J. Caboose
-- ReGect (Reject)
+- Débutant / Rookie / ODST
 .
 - He/They/It
 --------------
@@ -21,7 +21,7 @@
 - Coping-Link: Coping-Links comfort my insecurities, and I often identify with them physically/psychologically in a way to comfort myself mentally, or how I view myself physically, it also extends further.
 
 - I have severe anxiety & depression and can get overwhelmed easily.
-- I am not self-diagnosing myself, but I have done my research and my mental state/symptoms conclude I may have Psychosis(Shizophrenia) I am working on being diagnosed when I can as at 16 I do not have many options of healthcare.
+- I am not self-diagnosing myself, but I have done my research and my mental state/symptoms conclude I may have Psychosis(Schizophrenia) I am working on being diagnosed when I can as at 16 I do not have many options of healthcare.
 
 --------------
 
