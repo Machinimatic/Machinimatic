@@ -16,7 +16,9 @@
 
 -. Info;
 
-- I am still active on Ponytown! But I am very focused on School & my actual work / progressing as an entity, If you are my friend, contact me about a social like discord or something else! I may not talk a lot but I love and appreciate everyone I've met!!
+- I rlly like mangos...and pineapple..
+
+- I'm trying to be on Ponytown more...IF u have it, i have discord, insta, etc for contacts.
 - 
 - Coping-Link: Coping-Links comfort my insecurities, and I often identify with them physically/psychologically in a way to comfort myself mentally, or how I view myself physically, it also extends further.
 
