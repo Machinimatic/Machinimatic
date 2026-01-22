@@ -16,10 +16,13 @@
 
 -. Info;
 
+- I cannot play during school hours which is 8am-4pm EST time…my school
+blocked all my stuff sigh… but I am still sometimes active!!
+
 - I rlly like mangos...and pineapple..
 
-- I'm trying to be on Ponytown more...IF u have it, i have discord, insta, etc for contacts.
-- 
+- IF u have it, i have discord, insta, etc for contacts.
+
 - Coping-Link: Coping-Links comfort my insecurities, and I often identify with them physically/psychologically in a way to comfort myself mentally, or how I view myself physically, it also extends further.
 
 - I have severe anxiety & depression and can get overwhelmed easily.
