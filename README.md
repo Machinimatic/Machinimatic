@@ -1,9 +1,9 @@
- <img src="https://static.wikia.nocookie.net/halo/images/d/df/Roland_in_swamp.jpg/revision/latest?cb=20110625195701" width="300"> 
+ <img src="https://i.pinimg.com/736x/cb/71/6c/cb716c5155585f021619b776083d62ba.jpg" width="300"> 
 
 -. Main;
 - Zane
 - Mach / Machinimatic 
-- Rico / Ricardo 
+- Rico / Ricardo / Rio
 
 
 -. CPL Names;
@@ -19,7 +19,7 @@
 - I cannot play during school hours which is 8am-4pm EST time…my school
 blocked all my stuff sigh… but I am still sometimes active!!
 
-- I rlly like mangos...and pineapple..
+- I rlly like mangos...and pineapple..and birds! infact i am a bird.../j
 
 - IF u have it, i have discord, insta, etc for contacts.
 
