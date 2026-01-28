@@ -7,7 +7,7 @@
 <br/>
 
 <p>
-⌯⁍ Zane, Mach, Rico, & many other <a href="https://rico404.straw.page/">identities</a> . . "<br/> ᵎ!ᵎ
+⌯⁍ Zane, Mach, Rico, & many other <a href="https://en.pronouns.page/@Machinimatic/">identities</a> . . "<br/> ᵎ!ᵎ
 ۫ ׅ "' , Spit your blood and bare your teeth, ' " ✘
 </p>
 ᝰ🚬
