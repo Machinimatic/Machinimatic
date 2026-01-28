@@ -7,14 +7,14 @@
 <br/>
 
 <p>
-Zane, Mach, Rico, & many other <a href="#">names</a> . . "<br/>
+Zane, Mach, Rico, & many other <a href="https://rico404.straw.page/">identities</a> . . "<br/>
 "' , Spit your blood and bare your teeth, ' "
 </p>
-
+ᝰ🚬
 <p>
-.he, ' they, ' it, ' &nbsp; ~ &nbsp; <a href="https://machinimatic.atabook.org/">Sign Ata.</a>
+✶ .he, ' they, ' it, ⌖' &nbsp; ~ &nbsp; <a href="https://machinimatic.atabook.org/">Sign Ata.</a>
 </p>
-
+ᡕᠵデᡁ᠊╾━ ✷
 </div>
 
 
