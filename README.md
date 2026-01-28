@@ -1,16 +1,18 @@
 <div align="center">
+  <img src="https://i.pinimg.com/736x/af/72/05/af72056730ae5f6a38d9e5358dc43993.jpg" width="700"/>
+</div>
 
-<img src="assets/frame.png" width="700"/>
+<div align="center">
 
 <br/>
 
 <p>
-ryker, uno + many other <a href="#">names</a> . . "<br/>
-most likely offtb or w friends (,,ᴗ‿ᴗ,,)
+Zane, Mach, Rico, & many other <a href="#">names</a> . . "<br/>
+"' , Spit your blood and bare your teeth, ' "
 </p>
 
 <p>
-.he him &nbsp; ~ &nbsp; <a href="https://example.com">color my tree</a>
+.he, ' they, ' it, ' &nbsp; ~ &nbsp; <a href="https://machinimatic.atabook.org/">Sign Ata.</a>
 </p>
 
 </div>
