@@ -16,7 +16,7 @@
 </p>
 ᡕᠵデᡁ᠊╾━ ✷
 </div>
-
+( Opening tumblr to public soon )
 
 
 
