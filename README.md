@@ -16,8 +16,9 @@
 </p>
 ᡕᠵデᡁ᠊╾━ ✷
 </div>
-( Opening tumblr to public soon )
 
+<div align="center">
+✶ .Art for public, ⌖' &nbsp; ~ &nbsp; <a href="https://www.tumblr.com/blog/machinimaticcpl"></a>
 
 
 --------------
