@@ -18,7 +18,7 @@
 </div>
 
 <div align="center">
-✶ .Art for public, ⌖' &nbsp; ~ &nbsp; <a href="https://www.tumblr.com/blog/machinimaticcpl"></a>
+✶ .Art for public, ⌖' &nbsp; ~ &nbsp; <a href="https://www.tumblr.com/blog/machinimaticcpl">Tumblr</a>
 
 
 --------------
