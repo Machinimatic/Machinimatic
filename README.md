@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://i.pinimg.com/1200x/7c/df/21/7cdf21c3f9b597993666f8a15cb2c34e.jpg" width="700"/>
+  <img src="https://i.pinimg.com/736x/62/d1/06/62d106a2217018ff2ae683a30170f50d.jpg" width="700"/>
 </div>
 
 <div align="center">
@@ -7,8 +7,12 @@
 <br/>
 
 <p>
-⌯⁍ Zane, Mach, Rico, & many other <a href="https://en.pronouns.page/@Machinimatic/">identities</a> . . "<br/> ᵎ!ᵎ
-۫ ׅ "' , Spit your blood and bare your teeth, ' " ✘
+⌯⁍ Zane/Zee 
+  ⌯⁍ Mach/Machin
+  ⌯⁍ Ricardo/Rico
+  --
+  ⌯⁍ Coping-linker : Parrot / X2 or Spoke <a href="https://en.pronouns.page/@Machinimatic/">identities</a> . . "<br/> ᵎ!ᵎ
+۫ ׅ "' , Beautiful, Violent, Vulgar, ' " ✘
 </p>
 ᝰ🚬
 <p>
