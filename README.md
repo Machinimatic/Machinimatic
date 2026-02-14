@@ -7,9 +7,11 @@
 <br/>
 
 <p>
-⌯⁍ Zane/Zee 
-  ⌯⁍ Mach/Machin
-  ⌯⁍ Ricardo/Rico
+⌯⁍ Zane/Zee
+  
+⌯⁍ Mach/Machin
+  
+⌯⁍ Ricardo/Rico
   --
   ⌯⁍ Coping-linker : Parrot / X2 or Spoke <a href="https://en.pronouns.page/@Machinimatic/">identities</a> . . "<br/> ᵎ!ᵎ
 ۫ ׅ "' , Beautiful, Violent, Vulgar, ' " ✘
