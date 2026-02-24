@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://i.pinimg.com/736x/62/d1/06/62d106a2217018ff2ae683a30170f50d.jpg" width="700"/>
+  <img src="https://pbs.twimg.com/media/Gq8puNzWMAAqgSd?format=jpg&name=4096x4096" width="700"/>
 </div>
 
 <div align="center">
@@ -14,7 +14,7 @@
 ⌯⁍ Ricardo/Rico
   
   --
-  ⌯⁍ Coping-linker : Parrot / X2 or Spoke 
+  ⌯⁍ Coping-linker : Duke
   
   ---
   
