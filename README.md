@@ -14,7 +14,7 @@
 ⌯⁍ Ricardo/Rico
   
   --
-  ⌯⁍ Coping-linker : Duke
+  ⌯⁍ Coping-linker : Duke / Parrot / Spoke
   
   ---
   
