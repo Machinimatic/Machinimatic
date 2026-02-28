@@ -7,6 +7,9 @@
 <br/>
 
 <p>
+
+  ['For ponytown: Do not copy or take inspiration from my skins, pretty please, unless you're a friend!! then it's okay <3, but if ur not and i dont know you, don't do it!!']
+  
 ⌯⁍ Zane/Zee  
   
 ⌯⁍ Mach/Machin
