@@ -26,7 +26,7 @@
 </p>
 ᝰ🚬
 <p>
-✶ .he, ' they, ' it, ⌖' &nbsp; ~ &nbsp; <a href="https://machinimatic.atabook.org/">Sign Ata.</a>
+✶ it, ' he, ' they, ⌖' &nbsp; ~ &nbsp; <a href="https://machinimatic.atabook.org/">Sign Ata.</a>
 </p>
 ᡕᠵデᡁ᠊╾━ ✷
 </div>
