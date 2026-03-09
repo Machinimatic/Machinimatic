@@ -17,11 +17,11 @@
 ⌯⁍ Ricardo/Rico
   
   --
-  ⌯⁍ Coping-linker : Duke / Parrot / Spoke
+  ⌯⁍ Copinger-Linker / Possible PDID
   
   ---
   
-  <a href="https://en.pronouns.page/@Machinimatic/">identities</a> . . "<br/> ᵎ!ᵎ
+  <a href="https://pronouns.cc/@machinimaticorg">identities</a> . . "<br/> ᵎ!ᵎ
 ۫ ׅ "' , Beautiful, Violent, Vulgar, ' " ✘
 </p>
 ᝰ🚬
