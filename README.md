@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://www.reddit.com/media?url=https%3A%2F%2Fexternal-preview.redd.it%2Fhalo-butt-buddies-the-gang-gets-therapy-v0-Dr6HlkGAP1gb6s_q8LAnnlQORK11WCf-HBNoBn0cptA.jpg%3Fformat%3Dpjpg%26auto%3Dwebp%26s%3D47080810d5e9d43321de0bf23fd52ecdfc9ee4ea" width="700"/>
+  <img src="https://i.ytimg.com/vi/Fy-8CxHa96g/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLCM8VuMFrHf0NkcNdYVmuB8S7oTvg" width="700"/>
 </div>
 
 <div align="center">
