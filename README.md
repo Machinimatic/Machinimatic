@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://i.pinimg.com/1200x/2f/fb/8b/2ffb8b459e8e874032be0baa123cbd4c.jpg" width="700"/>
+  <img src="https://i.pinimg.com/736x/4e/e7/c0/4ee7c03fc8ebadd2f24334847a90ceba.jpg" width="700"/>
 </div>
 
 <div align="center">
@@ -8,21 +8,17 @@
 
 <p>
 
-  ['For ponytown: Do not copy or take inspiration from my skins, pretty please, unless you're a friend!! then it's okay <3, but if ur not and i dont know you, don't do it!!']
+  ['For ponytown: We do not allow Copying/Inspiration of skins unless you are a friend.']
   
-⌯⁍ Zane/Zee  
-  
-⌯⁍ Mach/Machin
-  
-⌯⁍ Ricardo/Rico
+⌯⁍ The Knight in Shining Armor ⌯⁍
   
   --
-  ⌯⁍ Copinger-Linker / Possible PDID
+  ⌯⁍ Copinger-Linker / Possible PDID. Will refer to ourselves in plural, but will say I/Me ⌯⁍
   
   ---
   
   <a href="https://pronouns.cc/@machinimaticorg">identities</a> . . "<br/> ᵎ!ᵎ
-۫ ׅ "' , Beautiful, Violent, Vulgar, ' " ✘
+۫ ׅ "' , Lore update: Taking a lil' snooze, ' " ✘
 </p>
 ᝰ🚬
 <p>
