@@ -8,12 +8,12 @@
 
 <p>
 
-  ['For ponytown: We do not allow Copying/Inspiration of skins unless you are a friend.']
+  ['For ponytown: I do not allow Copying/Inspiration of skins unless you are a friend.']
   
 ⌯⁍ The Knight in Shining Armor ⌯⁍
   
   --
-  ⌯⁍ Copinger-Linker / Possible PDID. Will refer to ourselves in plural, but will say I/Me ⌯⁍
+  ⌯⁍ Copinger-Linker | I don’t want ppl to lynch me so no I don't have P-DID. I might still say “we” in plural though Cs yeah. ⌯⁍
   
   ---
   
