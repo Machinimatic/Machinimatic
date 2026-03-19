@@ -13,7 +13,7 @@
 ⌯⁍ The Knight in Shining Armor ⌯⁍
   
   --
-  ⌯⁍ Copinger-Linker | I don’t want ppl to lynch me so no I don't have P-DID. I might still say “we” in plural though Cs yeah. ⌯⁍
+  ⌯⁍ Copinger-Linker | I don’t want ppl to lynch me so no I don't suspect I have pdid. I might still say “we” in plural though Cs yeah. ⌯⁍
   
   ---
   
