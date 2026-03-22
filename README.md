@@ -8,10 +8,10 @@
 <p align="center">
  # "From Logic and lore, I forge my craft" #
   
--• 16 , 04/23  •
--• Engineering / Chemistry •
--• Coping-Linker / Possible PDID •
--• Diagnosed with severe depression and anxiety •
+- 16 , 04/23  •
+- Engineering / Chemistry •
+- Coping-Linker / Possible PDID •
+- Diagnosed with severe depression and anxiety •
 
  <p align="center">
  ••••••••••••••••••••••••
