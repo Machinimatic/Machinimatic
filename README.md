@@ -7,6 +7,7 @@
 
 <p align="center">
  # "From Logic and lore, I forge my craft" #
+  
 -• 16 , 04/23  •
 -• Engineering / Chemistry •
 -• Coping-Linker / Possible PDID •
