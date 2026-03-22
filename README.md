@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://i.pinimg.com/1200x/3b/1a/af/3b1aaf7690716ea59285c288e3c8215c.jpg" width="400">
+  <img src="https://i.pinimg.com/736x/53/ea/4d/53ea4d8b8bdb7b1f606ba33d1d38d9a4.jpg" width="400">
 </p>
 
 <p align="center">
- - me & my future husband when I get that cookie -
+ - "hes my man, hand in hand" -
   
 <p align="center">
  ••••••••••••••••••••••••
