@@ -16,4 +16,4 @@
  ••••••••••••••••••••••••
 
  <p align="center">
- '''[ dni list ] (https://dni--list.straw.page/)
+ [dni list](https://dni--list.straw.page/)
