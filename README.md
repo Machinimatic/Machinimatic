@@ -16,4 +16,4 @@
  ••••••••••••••••••••••••
 
  <p align="center">
-[Click here to visit my site](https://dni--list.straw.page/)
+[Dni List](https://dni--list.straw.page/)
