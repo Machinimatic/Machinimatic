@@ -16,4 +16,4 @@
  ••••••••••••••••••••••••
 
  <p align="center">
-[Dni List](https://dni--list.straw.page/)
+<a href="https://dni--list.straw.page/">Dni List</a>
