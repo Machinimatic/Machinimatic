@@ -22,3 +22,7 @@
 
  <p align="center">
 <a href="https://dni--list.straw.page/">Dni List</a>
+
+ <p align="center">
+<a href="https://thenewgallery.straw.page/">Strawpage gallery new!!</a>
+
