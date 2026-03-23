@@ -14,7 +14,8 @@
 <p align="center">  
 - 16 , 04/23  •
 - Engineering / Chemistry •
-- Coping-Linker / Possible PDID •
+- Coping-Linker / Possible PDID [ ⚠️ : I am a person suspected of pdid, yes, I've done my research, no, I am not self-diagnosing. If you do not like this, DNI ]
+ •
 - Diagnosed with severe depression and anxiety •
 
  <p align="center">
