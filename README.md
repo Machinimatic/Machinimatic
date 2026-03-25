@@ -1,15 +1,15 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/53/ea/4d/53ea4d8b8bdb7b1f606ba33d1d38d9a4.jpg" width="400">
+  <img src="https://i.pinimg.com/1200x/18/99/fb/1899fb7083cc14e76bc43c2bcebf1504.jpg" width="400">
 </p>
 
 <p align="center">
- - "hes my man, hand in hand" -
+ - "What doesn't kill me, might make me kill you." -
   
 <p align="center">
  ••••••••••••••••••••••••
 
 <p align="center">
- # "From Logic and lore, I forge my craft" #
+ # "I am not violent. I am not malicious. I am a result." #
 
 <p align="center">  
 - 16 , 04/23  •
