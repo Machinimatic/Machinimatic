@@ -1,15 +1,15 @@
 <p align="center">
-  <img src="https://i.pinimg.com/1200x/18/99/fb/1899fb7083cc14e76bc43c2bcebf1504.jpg" width="400">
+  <img src="https://i.pinimg.com/736x/d8/1a/d4/d81ad458ba7321d3c6b6679e21045d32.jpg" width="400">
 </p>
 
 <p align="center">
- - "What doesn't kill me, might make me kill you." -
+ - "Impossible! You don't even know how many drugs I'm on right now!" -
   
 <p align="center">
  ••••••••••••••••••••••••
 
 <p align="center">
- # "I am not violent. I am not malicious. I am a result." #
+ # "You big fucking nerd, where's my god damn money?" #
 
 <p align="center">  
 - 16 , 04/23  •
