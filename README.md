@@ -1,15 +1,15 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/52/c1/e1/52c1e1ace73c0e18f1d262d5f9be7f81.jpg" width="400">
+  <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRwYgMNIoEjH6fBZCfxxe9cb57aFYzZe48yNA&s" width="400">
 </p>
 
 <p align="center">
- - "Impossible! You don't even know how many drugs I'm on right now!" -
+ - "Woah! Who's this handsome metal hunk?" -
   
 <p align="center">
  ••••••••••••••••••••••••
 
 <p align="center">
- # "You big fucking nerd, where's my god damn money?" #
+ # "Impossible! You don't even know how many drugs I'm on right now!" #
 
 <p align="center">  
 - 16 , 04/23  •
