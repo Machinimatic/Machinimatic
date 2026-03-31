@@ -1,15 +1,15 @@
 <p align="center">
-  <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRwYgMNIoEjH6fBZCfxxe9cb57aFYzZe48yNA&s" width="400">
+  <img src="https://i.pinimg.com/736x/bd/bd/29/bdbd29e36151dc722085c0a02cc621fc.jpg" width="400">
 </p>
 
 <p align="center">
- - "Woah! Who's this handsome metal hunk?" -
+ - "Isn't it ironic—that a King loses to a Lord" -
   
 <p align="center">
  ••••••••••••••••••••••••
 
 <p align="center">
- # "Impossible! You don't even know how many drugs I'm on right now!" #
+ # "Don't be fooled. It's listening". #
 
 <p align="center">  
 - 16 , 04/23  •
