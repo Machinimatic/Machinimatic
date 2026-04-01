@@ -1,15 +1,15 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/bd/bd/29/bdbd29e36151dc722085c0a02cc621fc.jpg" width="400">
+  <img src="https://i.pinimg.com/736x/46/a6/f3/46a6f3708d272ffd08eafa0a9089e501.jpg" width="400">
 </p>
 
 <p align="center">
- - "Isn't it ironic—that a King loses to a Lord" -
+ - "Come join me for a ride, whether in the sky or on the road." -
   
 <p align="center">
  ••••••••••••••••••••••••
 
 <p align="center">
- # "Don't be fooled. It's listening". #
+ # "Isn't it ironic—that a King loses to a Lord". #
 
 <p align="center">  
 - 16 , 04/23  •
