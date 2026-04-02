@@ -6,29 +6,4 @@
  - "Come join me for a ride, whether in the sky or on the road." -
   
 <p align="center">
- ••••••••••••••••••••••••
-
-<p align="center">
- # "Isn't it ironic—that a King loses to a Lord". #
-
-<p align="center">  
-- 16 , 04/23  •
-
-<p align="center">  
-  - Engineering / Chemistry •
-
-<p align="center">  
-- Coping-Linker / Possible PDID [ ⚠️ : I am a person suspected of pdid, yes, I've done my research, no, I am not self-diagnosing. If you do not like this, DNI ]
-
- <p align="center">  
-- Diagnosed with severe depression and anxiety •
-
- <p align="center">
- ••••••••••••••••••••••••
-
- <p align="center">
-<a href="https://dni--list.straw.page/">Dni List</a>
-
- <p align="center">
-<a href="https://thenewgallery.straw.page/">Strawpage gallery new!!</a>
-
+[ Remaking ]
