@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/originals/9a/b1/09/9ab10902df0ae24f86096c8d722722f1.gif" width="400" >
+  <img src="https://i.pinimg.com/1200x/a3/de/4f/a3de4fe56122aa5be6a054bca19f047d.jpg" width="400" >
 </p>
 
 <p align="center">
@@ -9,7 +9,7 @@
 0͙4͙/͙2͙3͙ ͙|͙ ͙1͙6͙
 
 <p align="center">
- <img src="https://i.pinimg.com/originals/59/db/23/59db236c0db182d9b178c76190d0264d.gif" width="200">
+ <img src="https://i.pinimg.com/736x/ea/c9/b6/eac9b66375a4832cb7867669fc76e3f3.jpg" width="200">
 </p>
 
 <p align="center">
