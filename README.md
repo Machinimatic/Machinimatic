@@ -19,6 +19,8 @@
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
 <p align="center">
+ ( Most of my Alternate Persons are referred to as LINKS, as alters do not fit right with me/us. )
+<p align="center">
 <a href="https://pronouns.cc/@machinimaticorg" style="color: blue;">
   | Alters / Links |
   <p align="center">
