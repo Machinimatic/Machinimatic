@@ -18,4 +18,4 @@
 <p align="center">
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-currently in a horrible mental state and doubting everything pls dont hate me
+updating socials / rarity im on github/pt much more
