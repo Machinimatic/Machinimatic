@@ -18,18 +18,4 @@
 <p align="center">
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
 
-<p align="center">
- ( Most of my Alternate Persons are referred to as LINKS, as alters do not fit right with me/us. )
-<p align="center">
-<a href="https://pronouns.cc/@machinimaticorg" style="color: blue;">
-  | Alters / Links |
-  <p align="center">
-  ✶
-  <p align="center">
-  <a href="https://dni--list.straw.page/" style="color: blue;">
- | Dni List |
- <p align="center">
-  ✶
-  <p align="center">
-  <a href="https://machinimatic.atabook.org/" style="color: blue;">
- | Sign Ata! |
+currently in a horrible mental state and doubting everything pls dont hate me
