@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/51/17/b8/5117b8439c4fbaefd81c6717a38cbaea.jpg" width="400" >
+  <img src="https://i.pinimg.com/736x/ee/b1/99/eeb199c230a102650e10e63f6dcdce2e.jpg" width="400" >
 </p>
 
 <p align="center">
@@ -9,11 +9,11 @@
 0͙4͙/͙2͙3͙ ͙|͙ ͙1͙6͙
 
 <p align="center">
- <img src="https://i.pinimg.com/736x/63/1a/33/631a333bb922973a11520f439ecc478c.jpg" width="200">
+ <img src="https://i.pinimg.com/736x/99/62/91/996291441e9c6e78b822000d60c755ba.jpg" width="200">
 </p>
 
 <p align="center">
-"ɪ'ᴍ ʀɪɢʜᴛ ʜᴇʀᴇ, ᴅᴀʀɪᴜꜱ.."
+"ʜᴀᴠᴇ ʏᴏᴜ ᴇᴠᴇʀ ᴡᴏɴᴅᴇʀᴇᴅ ᴡʜʏ ᴡᴇ'ʀᴇ ʜᴇʀᴇ?"
 
 <p align="center">
 ⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
