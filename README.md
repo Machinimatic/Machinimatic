@@ -3,6 +3,8 @@
 </p>
 
 <p align="center">
+  " Oh, Machine, the divine light which reflects off your stained metal could never deter me, you've given me freedom, and now, you're the most wonderful mistake I've made, dear V1. Rest your stained hands in mine. And we shall thrive."
+<p align="center">
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 <p align="center">
