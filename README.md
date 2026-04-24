@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://media1.tenor.com/m/uctvqxYjvoMAAAAd/gabriel-ultrakill.gif" width="400" >
+  <img src="https://i.pinimg.com/736x/ac/e8/9d/ace89dc9551e3ba3638a5b77b8b3d4d1.jpg" width="400" >
 </p>
 
 <p align="center">
-  " Oh, Machine, the divine light which reflects off your stained metal could never deter me, you've given me freedom, and now, you're the most wonderful mistake I've made, dear V1. Rest your stained hands in mine. And we shall thrive."
+  " Ohhh Locusss !!"
 <p align="center">
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
@@ -35,6 +35,6 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 <p align="center">
-  <img src="https://media1.tenor.com/m/t-svVKDU0QoAAAAd/ultrakill-gabriel-ultrakill.gif" width="200" >
+  <img src="https://i.pinimg.com/originals/5f/2c/ad/5f2cad7f3b6d91a7be3f316e6d96fb8f.gif" width="200" >
 </p>
   
