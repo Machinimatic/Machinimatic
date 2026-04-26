@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/ca/cd/90/cacd90a386b744d2e45c721a9089e588.jpg" width="400" >
+  <img src="https://64.media.tumblr.com/c767a3f38c63199e8739edefaac6af91/4252c7ea4af604d9-49/s540x810/d992893cf6f7847141151015dbfda984e45d1b50.gifv" width="400" >
 </p>
 
 <p align="center">
@@ -35,6 +35,6 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 <p align="center">
-  <img src="https://i.pinimg.com/originals/ca/68/41/ca684161e0cacf497f3e0326de674f76.gif" width="200" >
+  <img src="https://64.media.tumblr.com/011d89b5e3cf1966d3f752e8803ed705/4252c7ea4af604d9-90/s540x810/a2229f0f94b22c710cbfa9432ca4e19c9dd36496.gifv" width="200" >
 </p>
   
