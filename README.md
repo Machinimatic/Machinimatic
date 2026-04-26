@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/ac/e8/9d/ace89dc9551e3ba3638a5b77b8b3d4d1.jpg" width="400" >
+  <img src="https://i.pinimg.com/736x/ca/cd/90/cacd90a386b744d2e45c721a9089e588.jpg" width="400" >
 </p>
 
 <p align="center">
-  " Ohhh Locusss !!"
+  " This isn't a pity party, kid! "
 <p align="center">
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
@@ -35,6 +35,6 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 <p align="center">
-  <img src="https://i.pinimg.com/originals/5f/2c/ad/5f2cad7f3b6d91a7be3f316e6d96fb8f.gif" width="200" >
+  <img src="https://i.pinimg.com/originals/ca/68/41/ca684161e0cacf497f3e0326de674f76.gif" width="200" >
 </p>
   
