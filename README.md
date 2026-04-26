@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/c767a3f38c63199e8739edefaac6af91/4252c7ea4af604d9-49/s540x810/d992893cf6f7847141151015dbfda984e45d1b50.gifv" width="400" >
+  <img src="https://www-static.warframe.com/images/warframes/splash/cyte-09.jpg" width="400" >
 </p>
 
 <p align="center">
-  " This isn't a pity party, kid! "
+  "Who's my favorite little psychopath?? That's right, you are!! "
 <p align="center">
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
@@ -35,6 +35,6 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/011d89b5e3cf1966d3f752e8803ed705/4252c7ea4af604d9-90/s540x810/a2229f0f94b22c710cbfa9432ca4e19c9dd36496.gifv" width="200" >
+  <img src="https://static0.gamerantimages.com/wordpress/wp-content/uploads/2024/12/how-to-get-cyte-09-warframe-1999.jpg?w=1600&h=900&fit=crop" width="200" >
 </p>
   
