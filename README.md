@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://www-static.warframe.com/images/warframes/splash/cyte-09.jpg" width="400" >
+  <img src="https://media1.tenor.com/m/FuzQ38f2O1cAAAAC/warframe-grendel-y-gauss-emote.gif" width="400" >
 </p>
 
 <p align="center">
-  "Who's my favorite little psychopath?? That's right, you are!! "
+ "Between these two, the unspeakable, and the inescapable, there must be no more talk of defeat."
 <p align="center">
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
@@ -17,5 +17,5 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 <p align="center">
- <img src="https://media1.tenor.com/m/YX4uBF6pN3MAAAAd/warframe-gauss-prime.gif" width="400" >
+ <img src="https://media1.tenor.com/m/kYoBDBKkvnsAAAAC/grendel-warframe.gif" width="200" >
 </p>
