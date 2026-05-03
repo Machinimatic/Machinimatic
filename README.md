@@ -1,9 +1,9 @@
 <p align="center">
-  <img src="https://media1.tenor.com/m/FuzQ38f2O1cAAAAC/warframe-grendel-y-gauss-emote.gif" width="400" >
+  <img src="blob:https://www.pinterest.com/da8fdeb5-b6dd-44fb-9ff3-8d6dcf4b5584" width="400" >
 </p>
 
 <p align="center">
- "Between these two, the unspeakable, and the inescapable, there must be no more talk of defeat."
+ " Me and @venomousviperr / Gauss and Yareli !!! "
 <p align="center">
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
