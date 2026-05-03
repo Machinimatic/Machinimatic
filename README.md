@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="blob:https://www.pinterest.com/da8fdeb5-b6dd-44fb-9ff3-8d6dcf4b5584" width="400" >
+  <img src="" width="400" >
 </p>
 
 <p align="center">
