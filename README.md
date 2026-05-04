@@ -1,9 +1,13 @@
 <p align="center">
-  <img src="https://i.pinimg.com/736x/20/bb/0a/20bb0afb1c9398016900593fb6f1c8f8.jpg" width="400" >
+  <img src="https://i.ytimg.com/vi/-10wgrcndNI/maxresdefault.jpg" width="400" >
 </p>
 
 <p align="center">
- " Me and @venomousviperr / Gauss and Yareli !!! "
+ " Lovers together
+I need her, I need her
+I'll feed her, I'll keep her "
+  <p align="center">
+  - ᴵ ⁿᵉᵉᵈ ᵗʰᵉ ᴳʳᵉⁿᵈᵉˡ ᵗᵒ ᵐʸ ᴳᵃᵘˢˢ -
 <p align="center">
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
@@ -17,5 +21,5 @@
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 <p align="center">
- <img src="https://media1.tenor.com/m/kYoBDBKkvnsAAAAC/grendel-warframe.gif" width="200" >
+ <img src="https://wiki.warframe.com/images/PrideDisplayII.png?6c77d" width="200" >
 </p>
