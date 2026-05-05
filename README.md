@@ -1,13 +1,11 @@
 <p align="center">
-  <img src="https://i.ytimg.com/vi/-10wgrcndNI/maxresdefault.jpg" width="400" >
+  <img src="https://i.pinimg.com/736x/42/96/62/429662631883e5b06237c0bae4b0494d.jpg" width="400" >
 </p>
 
 <p align="center">
- " Lovers together
-I need her, I need her
-I'll feed her, I'll keep her "
+ " who wants to ride a motorcycle w/ me vro "
   <p align="center">
-  - ᴵ ⁿᵉᵉᵈ ᵗʰᵉ ᴳʳᵉⁿᵈᵉˡ ᵗᵒ ᵐʸ ᴳᵃᵘˢˢ -
+  -  -
 <p align="center">
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
@@ -21,5 +19,5 @@ I'll feed her, I'll keep her "
 ꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
 
 <p align="center">
- <img src="https://wiki.warframe.com/images/PrideDisplayII.png?6c77d" width="200" >
+ <img src="https://i.pinimg.com/1200x/a0/f7/73/a0f773b787d84b1b1fc1f63970d6d21c.jpg" width="200" >
 </p>
