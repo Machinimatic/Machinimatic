@@ -6,6 +6,9 @@
 ;[ ᴍᴀᴄʜ & ᴍᴏᴛᴏ ];
 
 <p align="center">
+•[ 𝟏𝟕 ! 𝟎𝟒/𝟐𝟑 ]•
+
+<p align="center">
   ⤷ ゛"ʀɪᴅɪɴɢ ᴀ ʀᴀᴄᴇ ʙɪᴋᴇ ɪꜱ ᴀɴ ᴀʀᴛ – ᴀ ᴛʜɪɴɢ ᴛʜᴀᴛ ʏᴏᴜ ᴅᴏ ʙᴇᴄᴀᴜꜱᴇ ʏᴏᴜ ꜰᴇᴇʟ ꜱᴏᴍᴇᴛʜɪɴɢ ɪɴꜱɪᴅᴇ." — ᴠᴀʟᴇɴᴛɪɴᴏ ʀᴏꜱꜱɪ ˎˊ˗
   <p align="center">
 <a href="https://guns.lol/theatticcyte">ɢᴜɴꜱʟᴏʟ</a> ☆ <a href="https://machinimatic.atabook.org/">ᴀᴛᴀ</a> ☆ <a href="https://pronouns.cc/@machinimaticorg">ᴘʀᴏɴᴏᴜɴᴄꜱᴄᴄ</a> 
