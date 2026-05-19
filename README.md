@@ -9,7 +9,12 @@
 
 <p align="center">
 •[ 𝟏𝟕 ! 𝟎𝟒/𝟐𝟑 ]•
-  
+
+
+<p align="center">
+  <img src="https://i.pinimg.com/736x/3b/bc/96/3bbc96ddaf4fae4c6e011948fb4d1cdc.jpg" width="300" >
+</p>
+
 <p align="center">
 ʙᴀꜱɪᴄ ᴅɴɪ / ᴅɴɪ ɪꜰ ᴜʀ ᴀꜱꜱᴏᴄɪᴀᴛᴇᴅ ᴡɪᴛʜ ᴍʏ ᴇx (ᴅ3ꜱᴛʀ0ʏ.3ʀ)
 
