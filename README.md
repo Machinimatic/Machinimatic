@@ -14,7 +14,7 @@
 ʙᴀꜱɪᴄ ᴅɴɪ / ᴅɴɪ ɪꜰ ᴜʀ ᴀꜱꜱᴏᴄɪᴀᴛᴇᴅ ᴡɪᴛʜ ᴍʏ ᴇx (ᴅ3ꜱᴛʀ0ʏ.3ʀ)
 
 <p align="center">
-Severe Anxiety/Depression & extreme masochism (warning)
+Severe Anxiety/Depression & uh yeah, 
 
 
   <p align="center">
